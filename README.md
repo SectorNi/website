@@ -53,7 +53,11 @@ Apple ID 美区账号一个，没有内购付费 App
 
 最近几年，随着“墙”的不断加高，“如何翻墙”和“如何科学上网”已经成为很多网民最关注的问题。本产品将主要为大家解决科学上网工具和翻墙方法。值得注意的是，由于防火长城不断的升级，导致一些之前能用的翻墙VPN突然就无法使用了，而另外一些翻墙VPN则经过优化调整之后又可以翻墙了。大家也可以放心购买我们这篇科学上网指导服务，我们也会一直不断提供解决方案服务。
 
-<img src="https://wp.huinong.co/wp-content/uploads/2023/03/qrcode_wp.huinong.co_.png" width="300px">   <img src="https://wp.huinong.co/wp-content/uploads/2022/12/1670771431_716.jpg" width="300px">    <img src="https://wp.huinong.co/wp-content/uploads/2023/03/1679154739_470.jpg" width="300px">
+# 平台网址二维码【扫码快速访问】
+<img src="https://wp.huinong.co/wp-content/uploads/2023/03/qrcode_wp.huinong.co_.png" width="300px">   
+
+# 联系方式 WeChat  和 Alipay 好有二维码
+<img src="https://wp.huinong.co/wp-content/uploads/2022/12/1670771431_716.jpg" width="300px">    <img src="https://wp.huinong.co/wp-content/uploads/2023/03/1679154739_470.jpg" width="300px">
  
 
 
