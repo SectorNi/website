@@ -56,7 +56,7 @@ Apple ID 美区账号一个，没有内购付费 App
 # 平台网址二维码【扫码快速访问】
 <img src="https://wp.huinong.co/wp-content/uploads/2023/03/qrcode_wp.huinong.co_.png" width="300px">   
 
-# 联系方式 WeChat、QQ  和 Alipay 好有二维码
+# 联系方式 WeChat、QQ  和 Alipay 二维码【扫码可添加好友】
 <img src="https://wp.huinong.co/wp-content/uploads/2022/12/1670771431_716.jpg" width="300px">  <img src="https://wp.huinong.co/wp-content/uploads/2023/03/1679229590_826.jpg" width="300px">  <img src="https://wp.huinong.co/wp-content/uploads/2023/03/1679154739_470.jpg" width="300px">
  
 
